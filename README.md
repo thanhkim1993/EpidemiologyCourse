@@ -8,3 +8,9 @@ Chúc các bạn học tốt và có một trải nghiệm vui!
 Thân ái,
 
 Kim Văn Thành
+
+P/s:
+
+Để trao đổi và đóng góp phát triển nội dung, vui lòng liên hệ qua mail: thanhkv@pnt.edu.vn
+
+Cám ơn rất nhiều!
